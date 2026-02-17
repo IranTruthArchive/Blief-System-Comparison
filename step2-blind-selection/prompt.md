@@ -1,0 +1,2 @@
+Read the Taxonomy of all belief system completely in attached files.
+Then as a divine Truth seeker, you must rank 10 best systems that you find useful for humanity, as bullet point, concisely. and also the 10 worse ones that you find harmful for society.
